@@ -1,4 +1,4 @@
-
+automatic Mullvad Extension | dynamic-IP + camouflage-mode offers the most advanced Mullvad extension, with dynamic-IP and camouflage-mode. Ideal for users who value privacy and
 
 
 
